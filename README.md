@@ -2,7 +2,7 @@
 - I'm studying at INHA University in Tashkent!!!
 - 👀 I’m interested in Coding and Money😁
 - 🌱 I’m currently learning HTML,CSS,JS and experiencing with real projects.
-- 💞️ I’m looking to collaborate on Rushana https://t.me/rushana_sadriddinovna
+- 💞️ I’m looking to collaborate on Rushana https://t.me/rushanasadriddinovna
 - 📫 How to reach me contact with Telegram https://https//t.me/sashanavai
 -
 
