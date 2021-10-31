@@ -3,7 +3,7 @@
 - 👀 I’m interested in Coding and Money😁
 - 🌱 I’m currently learning HTML,CSS,JS and experiencing with real projects.
 - 💞️ I’m looking to collaborate on Rushana https://t.me/rushanasadriddinovna
-- 📫 How to reach me contact with Telegram https://https//t.me/sashanavai
+- 📫 How to reach me contact with Telegram https://t.me/sashanavai and with email sashanavai0628@outlook.com
 -
 
 <!---
